@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **murpanironit@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/16x_xBq_jCO24weAk9dwVSrAtZweMncHj/view?usp=sharing](https://drive.google.com/file/d/1VWPRFowTbB6XnI0lH2bpwx4KC7jmGPCc/view?usp=drive_link)
+- 📄 Know about my experiences [https://drive.google.com/file/d/16x_xBq_jCO24weAk9dwVSrAtZweMncHj/view?usp=sharing](https://drive.google.com/file/d/1DGpHgpCS8wmBDr4qn1WTQtKx0yQzOxV6/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
